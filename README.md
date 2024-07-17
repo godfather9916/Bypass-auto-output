@@ -2,7 +2,7 @@
 
 
 **The chains:**
-> **Bsc, Eth, Polygon, Avax, Arb , Pulse, Gnosis, Cronos, Evmos, Fantom, and other.**
+> **Bsc, Eth, Polygon, Avax, Arb , Pulse, Gnosis, Cronos, Evmos, Fantom, and others.**
 
 > **I'm filming ABSOLUTELY All STAKING in ALL networks**
 
