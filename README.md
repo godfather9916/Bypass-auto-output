@@ -1,4 +1,4 @@
-# Auto-Output bypass software in EVM networks / Bypass tokens/nft/stakings in EVM chains
+# Auto-Output bypass software in EVM networks / Bypass tokens/nfts/stakings in EVM chains
 
 
 **The chains:**
