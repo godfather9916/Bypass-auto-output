@@ -6,7 +6,7 @@
 
 > **I'm filming ABSOLUTELY All STAKING in ALL networks**
 
-> **Safe all token under auto withdrawal bot(Sweeper) in all networks.**
+> **Safe all tokens under auto withdrawal bot(Sweeper) in all networks.**
 
 > **i can work with you on percentages**
 
