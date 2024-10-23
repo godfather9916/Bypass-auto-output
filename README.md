@@ -8,7 +8,7 @@
 
 > **Safe all tokens under auto withdrawal bot(Sweeper) in all networks.**
 
-> **i can work with you on percentages**
+> **i can work with you on percentage**
 
 > Your 100% trusted partner
 
